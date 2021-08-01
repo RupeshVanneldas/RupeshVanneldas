@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @RupeshVanneldas
+- 👀 I’m interested in Learning all kinds of stuff
+- 🌱 I’m currently doing my Bachelor's in IT
+- 📫 How to reach me rvanneldas2000@gmail.com
